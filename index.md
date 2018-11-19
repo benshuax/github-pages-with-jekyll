@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Eurotek Windows & Doors
 
-I'm glad you are here. I plan to talk about ...
+An Company aims at Preforomance, Design and Aesthetics and with Passionate people.
